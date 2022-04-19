@@ -1,1 +1,0 @@
-# Data_Etiquette_Groep7_Hackaton_2022
